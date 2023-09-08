@@ -30,6 +30,19 @@ https://1drv.ms/w/s!Avex3uT-tH4Lgg7PMElNpOooQaca
 
 ✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
 
+✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
+GOD JESUS MESSIAH GOD OF GODS
+GOD JESUS SAVIOR KING OF KINGS
+GOD JESUS CHRIST LORD OF LORDS
+✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
+GOD JESUS SAVIOR Loves Us Forgives Us Processes Us Purifies Us Teaches Us Advises Us Heals Us Helps Us Renews Us Blesses Us Protects Us Saves Us
+✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
+GOD JESUS SAVIOR Speaks Says :
++ Whoever Repents Lives In Believe GOD JESUS SAVIOR Faith Full Holys Loves All Forgives All Obeys GOD JESUS SAVIOR Will Be Save To Heaven
++ Whoever Not Repents Hearts Sins Memories Sins Minds Sins Speechs Sins Deeds Sins Will Be Punish To Hell
+
+~
+
 ✝️ Shalom All Brothers Sisters In GOD JESUS SAVIOR ❤️
 
 Invitation For Join In Group ✝️ GOD JESUS SAVIOR ❤️
@@ -46,4 +59,21 @@ https://chat.whatsapp.com/DOIEil7gzw7A5MY2zpyHmZ
 
 😃 Thanks All Brothers Sisters In GOD JESUS SAVIOR 🙏
 
+~
+
+✝️ Shalom Semua Saudara² Saudari² Dalam TUHAN YESUS JURUSELAMAT ❤️
+
+Undangan Untuk Gabung Dalam Group ✝️ TUHAN YESUS JURUSELAMAT ❤️
+
+Group ✝️ TUHAN YESUS JURUSELAMAT ❤️ Adalah Internasional Group Dari Semua Orang² Kristen Dari Semua Negara² Di Seluruh Dunia
+
+🙏 Bisa Semua Bahasa² + bisa chats + bisa share informasi Kristen Baik suka lagu² Kristen  kotbah² Kristen penginjilan² kesaksian² permohonan² doa² dll + bisa share informasi Bisnis Baik suka properti² jual produk² dll 🙏
+
+😃 Tolong share ini link undangan group ke Semua Orang² Kristen 🙏
+
+https://chat.whatsapp.com/DOIEil7gzw7A5MY2zpyHmZ
+
+😃 Terima Kasih TUHAN YESUS JURUSELAMAT Kasihi Kita Ampuni Kita Berkati Kita Lindungi Kita Selamatkan Kita Amin HALELUYA 🙏
+
+😃 Terima Kasih Semua Saudara² Saudari² Dalam TUHAN YESUS JURUSELAMAT 🙏
 

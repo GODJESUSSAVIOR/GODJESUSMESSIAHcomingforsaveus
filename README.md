@@ -4,7 +4,7 @@ THANKS PRAISES WORSHIPS GOD JESUS SAVIOR SUPER POWERS SUPER LOVES SAVES US AMEN 
 
 ✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️✝️❤️
 
-today 7 september 2023 i established new headquarters for GOD JESUS SAVIOR and then
+7 september 2023 i established new headquarters for GOD JESUS SAVIOR and then
 
 GOD JESUS SAVIOR give vision for i see GOD JESUS MESSIAH Lead Trillions Angels Armies Of Heaven Marching Ready For Coming To The World and i hear Trumpets sounds very loud and i feel very strong the Super Powers of GOD JESUS MESSIAH Coming For Save Us
 

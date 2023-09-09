@@ -53,7 +53,7 @@ Group ✝️ GOD JESUS SAVIOR ❤️ Is International Group Of All Christians Fr
 
 😃 Please share this link invitation group to All Christians 🙏
 
-https://chat.whatsapp.com/DOIEil7gzw7A5MY2zpyHmZ
+https://telegram.me/GODJESUSSAV1OR
 
 😃 Thanks GOD JESUS SAVIOR Love Us Forgive Us Bless Us Protect Us Save Us Amen HALELUYA 🙏
 
@@ -71,9 +71,8 @@ Group ✝️ TUHAN YESUS JURUSELAMAT ❤️ Adalah Internasional Group Dari Semu
 
 😃 Tolong share ini link undangan group ke Semua Orang² Kristen 🙏
 
-https://chat.whatsapp.com/DOIEil7gzw7A5MY2zpyHmZ
+https://telegram.me/GODJESUSSAV1OR
 
 😃 Terima Kasih TUHAN YESUS JURUSELAMAT Kasihi Kita Ampuni Kita Berkati Kita Lindungi Kita Selamatkan Kita Amin HALELUYA 🙏
 
 😃 Terima Kasih Semua Saudara² Saudari² Dalam TUHAN YESUS JURUSELAMAT 🙏
-
